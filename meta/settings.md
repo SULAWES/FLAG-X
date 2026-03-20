@@ -1,4 +1,4 @@
-#### 地球联合国 UNE / United Nations of Earth
+#### 地球联合国 UNE
 
 成立于22世纪初。
 
