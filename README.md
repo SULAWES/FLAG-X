@@ -1,3 +1,1 @@
 FLAG X
-
-HeavenlySU / SULAWESI
