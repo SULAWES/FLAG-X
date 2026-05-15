@@ -10,3 +10,5 @@
 
 ##### ch0005 FLAGs
 
+##### ch0006 Kizuna AI
+
